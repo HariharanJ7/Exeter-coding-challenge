@@ -1,1 +1,1 @@
-this file submiited in of rar file
+this file submiited in of rar zip file
